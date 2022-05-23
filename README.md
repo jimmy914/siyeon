@@ -1,4 +1,0 @@
-Gildong Hong:20210001
-Kookmin Univ. SW dept.
-A1
-A1
